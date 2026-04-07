@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 <h1 align="center">Hi 👋, I'm Vansh Mittal</h1>
-<h3 align="center">A passionate student from India</h3>
+<h3 align="center">FULL STACK DEVELOPER 🧑‍🎓  | BACKEND DEVELOPER </h3>
 
 - 📫 How to reach me **mvansh50@gmail.com**
 
