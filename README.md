@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mvansh50@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14yxCnd66U_U7KC7KNAno4Fam2o5ngrCW/view?usp=drive_link](https://drive.google.com/file/d/14yxCnd66U_U7KC7KNAno4Fam2o5ngrCW/view?usp=drive_link)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1-MZFHuNG0exvOEYwGUcmi_gVU3fkts-9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
