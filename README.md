@@ -56,14 +56,6 @@
 
 ---
 
-### 🔥 Streak Stats
-
-<p align="center">
-<img src="https://streak-stats.demolab.com?user=Vanshmittal18&theme=tokyonight"/>
-</p>
-
----
-
 ### ⚡ Fun Fact
 
 I enjoy turning ideas into real-world applications 🚀
